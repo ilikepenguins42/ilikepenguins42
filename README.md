@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me-
-insta- @akshat_s.d
+insta- @aksha.t_s.d
 
 
 <!---
