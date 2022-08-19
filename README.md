@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @ilikepenguins42
 - 👀 I’m interested in penguins/tech/science
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me-
 insta- @aksha.t_s.d
+twitter -@Akshatoff
+
 
 
 <!---
