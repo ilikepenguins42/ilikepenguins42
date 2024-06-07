@@ -1,8 +1,5 @@
 - 👋 Hi, I’m @ilikepenguins42
 - 👀 I’m interested in penguins/tech/science
-- 📫 How to reach me-
-insta- @aksha.t_s.d
-twitter -@Akshatoff
 
 
 
